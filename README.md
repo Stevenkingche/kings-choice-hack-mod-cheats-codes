@@ -1,2 +1,5 @@
-# kings-choice-hack-mod-cheats-codes
-King's Choice Hack unlimited free gold mod with cheats and codes 2021 that work
+# King's Choice Hack unlimited free gold mod with cheats and codes 2021 that work
+
+King's Choice Hack unlimited free gold mod with cheats and codes 2021 that work - Accepting this King's Choice free gold hack offer will make it easy for you to progress through your task log, especially if it involves construction or urban improvement. Spending 500 gold coins for four days of extra work will allow you to accomplish many tasks quickly, especially if you play the game regularly. In these four days, you should be able to reach the point (if not, use King's Choice cheats at that time) in the game where the shield of your city falls off (don't worry, it's a sign of progress!). If you like to have an extra worker in the city, consider supporting King's Choice codes to unlock it with real gold and silver. Otherwise, patience is the biggest key in the game (more on that later). A kingdom is nothing without its stronghold. You have the responsibility to control its level. Whenever you have enough material, check back to your stronghold to improve it. The higher its level, the more facilities and functions it can unlock. It's very important to do this early in the King's Choice mod.
+
+<a href="https://yintamod.xyz/kings-choice/">visit here</a>
